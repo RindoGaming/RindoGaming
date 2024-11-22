@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @RindoGaming
+- 👋 Hi, I’m V_Riety
 - 👀 I’m interested in VR Games
 - 🌱 I’m currently learning coding
 - ⚡ Fun fact: I am inside your home
